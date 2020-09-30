@@ -20,5 +20,5 @@ HEYYA check out my [website](https://bymi15.github.io) 😆
 ### Suraj Kothari
 I love Chrisopher Nolan movies!!!
 
-### Arslan Aftab
-Guess who's back, back again...
+### Nathan D'Souza
+I've never used Github before! <3
